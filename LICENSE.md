@@ -1,4 +1,4 @@
-# 
+# Elite Inkscape filtros para Mac OS | Seguro Inkscape filtros para PC Windows. Com simulação de física e verificação prévia — otimizado para máximo desempenho em cada plataforma.
 
 
 
